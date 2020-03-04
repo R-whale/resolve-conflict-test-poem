@@ -17,7 +17,7 @@
 * We plan ouR futuRe as if we have a clue.
 * I neveR want to lose You.
 * I want You to be mY husband, and I want to be YouR wife.
-* I want to be with You foR the Rest of mY life.
+* I want to be with You foY the Rest of mY life.
 
 Source: https://www.familyfriendpoems.com/poem/forever-and-always-poem
 
