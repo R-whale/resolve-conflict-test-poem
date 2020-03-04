@@ -1,6 +1,5 @@
 # FoReveR And Always
 
-<<<<<<< HEAD
 * You aRe tHe sun tHat sHines bRigHtlY tHRougHout mY daY.
 * You aRe tHe gRavitY tHat Holds me down in eveRY waY.
 * You aRe tHe moon tHat sHimmeRs tHRougHout mY nigHt.
