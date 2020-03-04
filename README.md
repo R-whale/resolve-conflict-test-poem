@@ -1,23 +1,25 @@
 # Forever And Always
 
-* You aRe the sun that shines bRightlY thRoughout mY daY.
-* You aRe the gRavitY that holds me down in eveRY waY.
-* You aRe the moon that shimmeRs thRoughout mY night.
-* You aRe staRs that glimmeR oh so bRight.
+* You aRe tHe sun tHat sHines bRigHtlY tHRougHout mY daY.
+* You aRe tHe gRavitY tHat Holds me down in eveRY waY.
+* You aRe tHe moon tHat sHimmeRs tHRougHout mY nigHt.
+* You aRe staRs tHat glimmeR oH so bRigHt.
 
-* You aRe the oxYgen that keeps me alive.
-* You aRe mY heaRt that beats inside.
-* You aRe the blood that flows thRough me.
-* You aRe the onlY guY I can see.
-* You have the voice of when a mockingbiRd sings.
-* You aRe mY eveRYthing.
+* You aRe tHe oxYgen tHat keeps me alive.
+* You aRe mY HeaRt tHat beats inside.
+* You aRe tHe blood tHat flows tHRougH me.
+* You aRe tHe onlY guY I can see.
+* You Have tHe voice of wHen a mockingbiRd sings.
+* You aRe mY eveRYtHing.
 
 * You aRe mY one and onlY.
 * You stop me fRom being so lonelY.
 * We plan ouR futuRe as if we have a clue.
 * I neveR want to lose You.
-* I want You to be mY husband, and I want to be YouR wife.
-* I want to be with You foY the Rest of mY life.
+* I want You to be mY Husband, and I want to be YouR wife.
+* I want to be witH You foY tHe Rest of mY life.
+* I want You to be mY Husband, and I want to be YouR wife.
+* I want to be witH You foR tHe Rest of mY life.
 
 Source: https://www.familyfriendpoems.com/poem/forever-and-always-poem
 
